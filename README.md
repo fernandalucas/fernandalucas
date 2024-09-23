@@ -8,4 +8,4 @@
 - 📫 Nascida e crescida no Paraná . . . 
 
 - ⚡ Obs: Amo minha professora amanda de pensamento computacional rsrs . . .
-
+email: lucas.fernanda@escola.pr.gov.br
